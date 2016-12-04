@@ -52,3 +52,10 @@ As you can see, I've been choosing flags that are related to me somehow (I chose
 I didn't make many changes in this flag. I just changed the colour blue into brown for the lines and the star in the middle. I also made the star without any white spaces as you can see. The reason I did this is because I wanted to represent that Israel is a country that is basically based on a desert and that's something that we all have to keep in mind because it's something that we should admire of this country. When the people from Israel first arrived to the land that we know as Israel today, they didn't have anything. They literally made a really advanced city from a desert when they didn't have much things to work with. That's why I used the colour brown in my Israeli flag. Now, the reason I chose to make the star without any white spaces is because the original star seems to be a bit broken and doesn't represent the union and the strength of this country. Making the star totally brown and with no holes and spaces, gives the feeling of being a stronger country.
 
 ###MY OWN FLAG
+![my own flag](MY OWN FLAG.jpg)
+
+And here we've got the flag I created. It's got colours that are in the mash up I did for the Colombian flag. This flag is the flag of an imaginary city called "Braveland".
+
+The blue represents the clear sky of this city and the rivers that are around Braveland. The yellow circle represents the sun that is always lighting the city, so it gives a message of that this is a city with a great weather, a city where rarely rains and never snows. The green represents the grass and the nature in this land. You can find any type of plants and animals, this is a kind of a technologic city but it's got big and well taken care forests. The tiger is the emblematic animal, it represents strength and courage.
+
+This is the flag I created after mashing up four different flags from four different countries. I liked this project because this is something that I've never done before so it was a new experience for me.
