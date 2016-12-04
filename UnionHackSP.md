@@ -24,4 +24,31 @@ With the canadian flag I was trying to five a strong message more than designing
 
 ![canadian flag changed 2](CANADIAN FLAG CHANGED 2.jpg)
 
-I like more this flag that the first one with the _black X_ covering the weed symbol. I think this one makes it look more like something forbidden or something that you shouldn't do. 
+I like more this flag than the first one with the _black X_ covering the weed symbol. I think this one makes it look more like something forbidden or something that you shouldn't do.
+
+###COLOMBIAN FLAG
+
+The third flag I decided to choose was the flag of the country where I was born, Colombia. I somehow wanted to add different colours to the flag that would represent things related to the country. I didn't think too much of adding symbols and stuff like that to the flag.
+
+![colombian flag](COLOMBIAN FLAG.png)
+![colombian flag changed](COLOMBIAN FLAG CHANGED.jpg)
+
+The changes I did were:
+
+* Change the colour yellow from the original flag into a really bright and soft blue.
+* Change the colour blue from the original flag into yellow.
+* Change the colour red from the original flag into brown.
+* Add a yellow circle where the colour yellow is in the mashed up flag.
+
+The reason I did this is simple, the bright and soft blue represents the rivers and the sea in Colombia. It also represents that the sky is always clear without clouds in the majority of the cities in Colombia. The colour yellow that comes along with the yellow circle represent the sun. The weather of Colombia is quite nice and I tried to give that message and feeling with the colour yellow. The colour brown represents the coffee. Colombia is known as the best producer of coffe in the world. I think that we should everyone know so adding that colour to the flag is my way to do it. I really liked doing this flag because it's the flag of my country and trying to add to the flag the thoughts that I want people to have about my country was my way to mash up this flag.
+
+###ISRAELI FLAG
+
+As you can see, I've been choosing flags that are related to me somehow (I chose the Brazilian flag because that's where the last Football WorldCup was and that's where the Colombian football team did a great job). The reason I chose the flag of Israel is because that's where my parents met each other and because of that I wrote this text that you're reading right now.
+
+![israeli flag](ISRAELI FLAG.png)
+![israeli flag changed](ISRAELI FLAG CHANGED.jpg)
+
+I didn't make many changes in this flag. I just changed the colour blue into brown for the lines and the star in the middle. I also made the star without any white spaces as you can see. The reason I did this is because I wanted to represent that Israel is a country that is basically based on a desert and that's something that we all have to keep in mind because it's something that we should admire of this country. When the people from Israel first arrived to the land that we know as Israel today, they didn't have anything. They literally made a really advanced city from a desert when they didn't have much things to work with. That's why I used the colour brown in my Israeli flag. Now, the reason I chose to make the star without any white spaces is because the original star seems to be a bit broken and doesn't represent the union and the strength of this country. Making the star totally brown and with no holes and spaces, gives the feeling of being a stronger country.
+
+###MY OWN FLAG
